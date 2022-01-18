@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @NewJoarpa
+- 👋 Hi, I’m @JoacoSlime
 - 👀 I’m interested in Videogames, Light Novels, Modding
 - 🌱 I’m currently learning to get my Computer Sciense Degree
 - 💞️ I’m looking to collaborate on Minecraft Modding
-- 📫 How to reach me @NewJoarpa#0192 (Discord) or @NewJoarpa (Twitter)
+- 📫 How to reach me @JoacoSlime#0192 (Discord) or @JoacoSlime (Twitter)
